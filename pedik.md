@@ -1,1 +1,1 @@
-eto polniy pizdec
+yarik
