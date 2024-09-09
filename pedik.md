@@ -1,1 +1,1 @@
-'Hello, Hexlet!' 
+eto polniy pizdec
